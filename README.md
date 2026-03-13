@@ -1,0 +1,72 @@
+# SIRUP – Online feat. ROMderful
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Um...
+Ah...
+
+このままじゃ
+俺ら 不健康
+I don't wanna die さ
+嫌な天候
+限界突破
+次の展望
+Alright, Alright
+
+何にもなくて
+暇で死にそう
+そんな日々にもう
+飽きてきそう
+それなら今日は歌ってみよう
+Alright, Alright, Alright
+
+Sunrise again today
+Reflecting off the windows
+何日目のSunset
+悪かないが
+外に出たいな
+みんな今何してるかな
+
+いつも通り「調子どう？」って
+笑い合える Online Online Online
+いつも通りの日常を
+繰り返す Online Online Online
+(Online)
+(Online Online)
+
+Oh
+今日もまた昼過ぎを
+まわって起きた 今日何曜？
+曜日感覚 なくなってくよな
+ベランダで過ごす午後
+そよぐ風 So high
+季節の誘いにものれない
+
+それでも生き抜く Offline
+Zoomで会おうよ Tonight
+それまでに片付けるよWork Work Work
+そんな１日をずっと
+何度重ねれば きっと
+いつかは終わるよ Quarantine life
+
+いつも通り「調子どう？」って
+笑い合える Online Online Online(Online)
+いつも通りの日常を
+繰り返す Online Online Online(Online)
+
+Next time next time I wanna see you offline
+Next time next time I wanna see you offline
+Next time next time I wanna see you offline line line line
+Next time next time I wanna see you offline
+Next time next time I wanna see you offline
+Next time next time I wanna see you offline
+Oh la la...
+Oh la la...
+Oh la la...
+Oh la la...
+Oh la la...
+Oh la la...
+Oh la la...
+Oh la la...
+```
